@@ -1,1 +1,0 @@
-# tapieprzonagranakonkurs.github.io
